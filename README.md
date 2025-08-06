@@ -1,0 +1,1 @@
+# dailyquote-privacy-policy
